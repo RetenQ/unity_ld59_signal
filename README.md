@@ -20,7 +20,7 @@ In any case, I hope you enjoy playing it!
 You can download it here: [https://retenq.itch.io/ld59-obeythesignal](https://retenq.itch.io/ld59-obeythesignal)
 
 
-##### My Story
+### My Story
 
 Hey, if you’re interested, you can also hear a bit about my story.
 
